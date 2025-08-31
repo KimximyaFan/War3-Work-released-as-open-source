@@ -1,4 +1,4 @@
-# War3-Work-as open sourced
+# War3-Work-released-as-open-source
 
 <br>
 <br>
